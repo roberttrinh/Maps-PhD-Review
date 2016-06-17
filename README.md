@@ -28,7 +28,11 @@ That is Fantastic! What's The Next Step?
 
 #4: So that more clients can discover them on the web.
 See more at: http://www.am-review.com/maps-phd-review/
+
 http://baotram.jimdo.com
-https://sites.google.com/site/amreviewbonus/
+
+https://sites.google.com/site/amreviewbonus
+
 http://dannytrinh.deviantart.com/
+
 http://www.meetup.com/edX-Global-Community/pages/Maps_PhD_Review/
